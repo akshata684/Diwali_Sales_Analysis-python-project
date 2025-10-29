@@ -28,3 +28,6 @@ The goal of this analysis is to:
 - Top selling states: **Uttar Pradesh, Maharashtra, and Karnataka**
 - **Clothing & Apparel** and **Food** categories contributed most sales
 
+🔗 Connect with Me
+**Akshata Patil**  
+[LinkedIn Profile] (https://www.linkedin.com/in/akshata-patil-a02852340/)
